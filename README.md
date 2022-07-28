@@ -1,1 +1,1 @@
-# odin-recipes
+This might be the change that I was looking for since the start. Hope this works out! I've always been tech savvy since I was young but never managed to finish any goals that I put out. Hopefully this will be the one that I'd be proud of when I look back in the future.
